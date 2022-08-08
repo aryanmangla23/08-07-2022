@@ -15,3 +15,5 @@ k read my convo and realized im so self centered. Thing to change. not so self c
 worked a decent amount. will work mostly tmrw :D and for next 3 days. ima be hyped to be working and not even trying to be sarcastic. im so elated to find time and actually focus in the library. 
 
 Made 2 playlists today, not sure if that was wat i was feeling, but might be. I can't put my finger on what.
+
+Realization: Most boys are chill with me, but all the girls or majority dislikes me without knowing who I am
